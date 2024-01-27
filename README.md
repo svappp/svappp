@@ -12,7 +12,7 @@
     
 [点击进入干净世界 · 入口7](https://vivovivo.gjdoor.xyz)
     
-[点击进入干净世界 · 入口8](https://enter.gj.330914.xyz)
+[点击进入干净世界 · 入口8](https://enter.330914.xyz)
     
 [点击进入干净世界 · 入口9](https://svappp.gj999.xyz)
     
